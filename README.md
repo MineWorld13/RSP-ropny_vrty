@@ -1,0 +1,2 @@
+# RSP-ropny_vrty
+část_bakalářský_práce_během_RSP
